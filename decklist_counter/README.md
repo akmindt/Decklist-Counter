@@ -1,0 +1,1 @@
+It just help you count your decklist at tournaments xD
